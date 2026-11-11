@@ -1,0 +1,1 @@
+Cartella riservata alle foto e agli asset originali. Nessun asset fotografico era presente nella conversazione o nel workspace al momento della preparazione del pacchetto. Aggiungere qui i file originali quando disponibili.
